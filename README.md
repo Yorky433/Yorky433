@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @YorkyWolf
 - 👀 I’m interested in computing, politics, aviation, art, and video games!
-- 🌱 I’m currently learning IC&T
-- 💞️ I’m looking to collaborate on ¯\\_(ツ)_/¯
+- 🌱 I’m currently learning IC&T in college (UK)
+- 💞️ I’m looking to collaborate on: -
 - 📫 How to reach me - Discord: Yorky#0713 Twitter(s): @YorkyWolf @Ryan_SDP
 
 <!---
