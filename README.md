@@ -2,4 +2,4 @@
 - 👀 I’m interested in computing, politics, aviation, art, and video games!
 - 🌱 I’m currently studying T level Digital Support Services in college (UK)
 - 💞️ I’m looking to collaborate on: -
-- 📫 How to reach me - Discord: yorkbork Twitter(s): @YorkBork
+- 📫 How to reach me - Discord: yorkbork Twitter: @YorkyWolf
