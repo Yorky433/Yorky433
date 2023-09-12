@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Yorky433
-- 👀 I’m interested in computing, politics, aviation, art, and video games!
-- 🌱 I’m currently studying T level Digital Support Services in college (UK)
+- 👋 Hi, I’m @Yorky433!
+- 👀 My interests are in computing (duh), politics, military aviation, art, and video games!
+- 🌱 Currently I'm studying L3 CTEC Networking and Emerging Digital Technologies at college in the UK!
 - 💞️ I’m looking to collaborate on: -
-- 📫 How to reach me - Discord: yorkbork Twitter: @YorkyWolf
+- 📫 How to reach me - Discord: yorkbork Twitter: @YorkyWolf Mastodon: @rgy@mastodon.ie
