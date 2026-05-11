@@ -1,5 +1,5 @@
 - 👋 ***Hiii, I’m @Yorky433, a British-Irish floofer working as an IT Solutions Techie!***
-- 👀 My interests are in computing (duh), politics, military aviation, art, and video games!
-- 🌱 Currently I'm working as an IT hardware solutions specialist in the UK, but really my job is a bit of everything!
+- 👀 My interests are in computing (duh), politics, military aviation, photography, and video games!
+- 🌱 Currently I'm working as an IT solutions technician in the UK, but really my job is a bit of everything!
 - 💞️ I’m looking to collaborate on: -
 - 📫 How to reach me - Discord: **yorkbork** Twitter/X: [**@YorkyWolf**](https://twitter.com/YorkyWolf) Mastodon: [**@rgy@mastodon.ie**](https://mastodon.ie/@rgy)
