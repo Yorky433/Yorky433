@@ -2,4 +2,4 @@
 - 👀 My interests are in computing (duh), politics, military aviation, photography, and video games!
 - 🌱 Currently I'm working as an IT solutions technician in the UK, but really my job is a bit of everything!
 - 💞️ I’m looking to collaborate on: -
-- 📫 How to reach me - Discord: **yorkbork** Twitter/X: [**@YorkyWolf**](https://twitter.com/YorkyWolf) Mastodon: [**@rgy@mastodon.ie**](https://mastodon.ie/@rgy)
+- 📫 How to reach me - Discord: **yorkbork** Twitter/X: [**@YorkyWolf**](https://twitter.com/YorkyWolf) Bluesky: [**@yorky.floofer.xyz**](https://bsky.app/profile/yorky.floofer.xyz)
